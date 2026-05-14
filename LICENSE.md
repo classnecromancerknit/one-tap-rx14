@@ -1,4 +1,4 @@
-#  
+#  one tap rare Scripts is the best one tap Script, featuring one-hit kill and infinite resources. Safe and powerful for all your needs.
 
 
 
